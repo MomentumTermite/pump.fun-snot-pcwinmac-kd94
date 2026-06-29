@@ -1,4 +1,4 @@
-# 
+# 更新 pump.fun sniper bot 预设 Mac OS版 | 免费 pump.fun sniper bot 预设 PC Windows版。集成 Gas费用估算 和 保证金管理，跨平台性能最大化。
 
 
 
